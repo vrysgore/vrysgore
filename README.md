@@ -13,7 +13,7 @@
   
 <br> [Ata ❁´◡`❁](https://vrysgore.atabook.org/) ... [pronouns !](https://en.pronouns.page/@vrysgore)
 
-<br> <img width="666" height="243" alt="image" src="https://i.pinimg.com/736x/90/63/4c/90634cc3ba96c3e5c2d877f0c6c2c5e9.jpg" />
+<br> <img width="666" height="300" alt="image" src="https://i.pinimg.com/736x/90/63/4c/90634cc3ba96c3e5c2d877f0c6c2c5e9.jpg" />
 
 𓎟𓎟   　   нεαvy dɴι .!  　   ⌣   　  $${\color{#60349e}azuretime\space\ . under\space 15\space . over\space 25\space . transphobe/homophobe\space . dandys world\space fandom\space}$$  　    𓈒  🪻
 <br>
