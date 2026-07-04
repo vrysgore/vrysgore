@@ -11,3 +11,5 @@
   ୭      no asking where i'm from </3    ˚       .        ᵎᵎ     
 　　&nbsp;   𓎟𓎟     please don't ask about anything from my irl life :(.     ⸝⸝ㅤ      ˎˊ˗
 
+  
+<br> [Ata ❁´◡`❁](https://vrysgore.atabook.org/)
