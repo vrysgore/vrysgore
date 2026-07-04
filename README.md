@@ -24,7 +24,7 @@
 ੭﹕﹒“ ɑzυяε fιςтισикιи .! „   ֺּׅ𓏽⑅
       ˚. ᵎᵎ 💭 ؛ଓ.   $${\color{#60349e}twotime\space ship\space dni\space zzz\space}$$˙.꒷ 
 
-<br> <img width="666" height="285" alt="image" src="https://i.pinimg.com/736x/d9/37/55/d937556049aabf48403133bc2e598fb9.jpg" />
+<br> <img width="666" height="340" alt="image" src="https://i.pinimg.com/736x/d9/37/55/d937556049aabf48403133bc2e598fb9.jpg" />
 
 wip dottore part, zzz sleeps
     
