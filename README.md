@@ -11,7 +11,7 @@
 　　&nbsp;   𓎟𓎟     please don't ask about anything from my irl life :(.     ⸝⸝ㅤ      ˎˊ˗
 
   
-<br> [Ata ❁´◡`❁](https://vrysgore.atabook.org/) [pronouns !](https://en.pronouns.page/@vrysgore)
+<br> [Ata ❁´◡`❁](https://vrysgore.atabook.org/) ... [pronouns !](https://en.pronouns.page/@vrysgore)
 
 <br> <img width="666" height="243" alt="image" src="https://i.pinimg.com/736x/90/63/4c/90634cc3ba96c3e5c2d877f0c6c2c5e9.jpg" />
 
