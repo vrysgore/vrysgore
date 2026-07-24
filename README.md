@@ -6,7 +6,7 @@
 </div>
 <p align="center">
   <a href="https://vrysgore.atabook.org/">
-  <img src="https://static.wikia.nocookie.net/unstable-universe-mc/images/b/b6/Spoke_skin.png/revision/latest?cb=20241023021819" alt="Alt Text" width="200"> <a href="https://en.pronouns.page/@vrysgore">
+  <img src="https://static.wikia.nocookie.net/unstable-universe-mc/images/b/b6/Spoke_skin.png/revision/latest?cb=20241023021819" alt="Alt Text" width="200"> <a href="https://pronouns.cc/@vrysgore">
   <img src="https://static.wikia.nocookie.net/lifesteal/images/f/ff/PlanetLord_Skin.png/revision/latest/scale-to-width/360?cb=20250403110348" alt="Alt Text" width="198">
 </p>
 </a>
