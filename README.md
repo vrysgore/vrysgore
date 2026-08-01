@@ -18,7 +18,7 @@
   $${\color{#ff61dd}Click \space on \space the \space minecraft \space skins! \space}$$
 </p>
 <div align="center">
-  <img src="https://i.pinimg.com/1200x/78/22/6a/78226a8d2ecbd6210dbe9db079a243d9.jpg" alt="Alternate Text"width="300" height="50"> <img src="https://i.pinimg.com/1200x/7c/91/80/7c91804edf454478607d56b79548de19.jpg" alt="Alternate Text"width="300" height="50"> <img src="https://i.pinimg.com/1200x/27/6b/79/276b79275b008b2d2eac0d5f801235b8.jpg" alt="Alternate Text"width="300" height="50"> <img src="https://64.media.tumblr.com/c3945bdc04e43e7ab50cf87e1a565a7b/e7932f508ad5eb49-a2/s640x960/251fa29228fdf74001c409371c2c2a2a67f96e64.pnj" alt="Alternate Text"width="300" height="58">
+  <img src="https://i.pinimg.com/1200x/78/22/6a/78226a8d2ecbd6210dbe9db079a243d9.jpg" alt="Alternate Text"width="300" height="58"> <img src="https://i.pinimg.com/1200x/7c/91/80/7c91804edf454478607d56b79548de19.jpg" alt="Alternate Text"width="300" height="58"> <img src="https://i.pinimg.com/1200x/27/6b/79/276b79275b008b2d2eac0d5f801235b8.jpg" alt="Alternate Text"width="300" height="58"> <img src="https://64.media.tumblr.com/c3945bdc04e43e7ab50cf87e1a565a7b/e7932f508ad5eb49-a2/s640x960/251fa29228fdf74001c409371c2c2a2a67f96e64.pnj" alt="Alternate Text"width="300" height="58">
 </div>
 
 
