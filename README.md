@@ -6,6 +6,7 @@
   <a href="https://rentry.co/vrysgore">
   </p>
       <p align="center">
+  </a> <a href="https://rentry.co/vrysgore">
   <img src="https://i.postimg.cc/sM3HK3bB/Untitled65-20260806081748.png" alt="queer" width="150"/>
 </a> <a href="https://vrysgore.atabook.org/">
   <img src="https://i.postimg.cc/Mnz3tzNs/Untitled65-20260806081837.png" alt="gay" width="150" />
