@@ -1,10 +1,4 @@
 <p align="center">
-  <img src="https://i.postimg.cc/VkwJd59m/Untitled68-20260812183301.png" alt="Alt text here" width="189"> 
- <a href="https://vrysgore.atabook.org/">
-  <img src="https://i.postimg.cc/gX4Q0JRF/Untitled68-20260812182752.png" alt="queer" width="120"/>
-    <a href="https://vrysgore.straw.page">
-  <img src="https://i.postimg.cc/vgGCM91F/Untitled68-20260812182609.png" alt="queer" width="190"/>
-  <a href="https://pronouns.cc/@vrysgore">
-  <img src="https://i.postimg.cc/qhQS7RnH/Untitled68-20260812182828.png" alt="queer" width="120"/>
+  when my friends miss the "dont vent" boundary and continue to make me uncomfortable , stop venting to me pls, I cannot help you and I won't help you, if you really wanted to vent then you should've vented to someone else, venting to someone that's clearly also in need will make the situation worse as i dont pay attention to the things I say
   </p>
-  hi i got lazy with this 1
+
