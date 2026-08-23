@@ -1,2 +1,2 @@
 
-I didnt want to feel sad for him but, [@r-udie](https://github.com/r-udie) I'm sorry I wasnt there for you, I'll always love you as much as you hurt me
+> you can take advantage of me as much as you wish, I will love you no matter how much you harass me
