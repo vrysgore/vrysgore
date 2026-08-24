@@ -1,2 +1,2 @@
 
-\> you can take advantage of me as much as you wish, I will love you no matter how much you harass me
+\> when you ask me america or 2p england so i point to somewhere else and run away with both, I love both of them,the brothers 🤤🤤🤤🤤🤤🤤🤤🤤🤤
