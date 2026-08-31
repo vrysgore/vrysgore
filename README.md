@@ -14,3 +14,5 @@
 </a> <a href="https://iloveallmyyumes.straw.page">
   <img src="https://i.postimg.cc/hvXzQ9Nx/Untitled70-20260831111021.png" alt="Alt Text" width="170" />
 </a>
+
+[Apology.](https://docs.google.com/document/d/17ONJ4kjqIirRvSiJfG8rcgYWvT5sdbS98PyHiPjntas/edit?tab=t.0)
